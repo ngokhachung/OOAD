@@ -1,3 +1,0 @@
-# OOAD
-Ngô Khắc Hùng
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
